@@ -24,6 +24,6 @@ verstecktere Dinge
 
 >> Lass es, wenn du nicht kannst! Würmer versuchen ja auch nicht zu fliegen ...
 
-<img src="https://de.wikipedia.org/wiki/Datei:Mary_Wollstonecraft_Shelley_Rothwell.tif"/>
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/b/b4/Mary_Wollstonecraft_Shelley_Rothwell.tif/lossy-page1-493px-Mary_Wollstonecraft_Shelley_Rothwell.tif.jpg"/>
 > Mary Shelley, 1840 gemalt von Richard Rothwell  Bildquelle: Wikipedia 
 
