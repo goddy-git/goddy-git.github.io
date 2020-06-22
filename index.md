@@ -1,2 +1,6 @@
 # The Life of Mary Shelley
 
+### Beschreibung des Charakters an Hand des Buches:
+### Spaziergang mit Mary: Die Wahrheit über die Frau die Frankensteins Monster erfand
+### von Enrico di Montalban
+Laut Buch ist die junge Mary mit Percy B. Shelley befreundet und reist mit ihm durch Deutschland. Sie ist sehr temperatmentvoll und setzt ständig ihren Kopf durch. So z.B. wenn es um die Reiseroute geht. Nach einer Szene im Ochsen, einem Gasthaus in Mannheim, einigt man sich darauf nicht den Rhein hinab zu fahren sondern durch den Wasgau Richtung Trier zu reisen. Sie selbst ist von Gestalt hochgewachsen und schlank, passt eher nicht zu ihrem Partner, der etwas untersetzt, krausköpfig und von nüchternem Charakter. Sie hat braungrüne Augen und eine markante lange Nase in dem typisch englischen Gesicht mit den brünetten Haaren.
