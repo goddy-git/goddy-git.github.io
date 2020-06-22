@@ -19,3 +19,7 @@ verstecktere Dinge
 2. mystisch veranlagt
 3. abergläubig
 4. romantisch aber nicht schwärmerisch
+
+## Marys Lieblingszitate laut di Montalban
+
+>> Lass es, wenn du nicht kannst! Würmer versuchen ja auch nicht zu fliegen ...
