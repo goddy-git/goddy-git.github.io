@@ -23,3 +23,7 @@ verstecktere Dinge
 ## Marys Lieblingszitate laut di Montalban
 
 >> Lass es, wenn du nicht kannst! Würmer versuchen ja auch nicht zu fliegen ...
+
+<img src="https://de.wikipedia.org/wiki/Datei:Mary_Wollstonecraft_Shelley_Rothwell.tif"/>
+> Mary Shelley, 1840 gemalt von Richard Rothwell  Bildquelle: Wikipedia 
+
